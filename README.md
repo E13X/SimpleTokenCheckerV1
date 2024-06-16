@@ -1,5 +1,5 @@
 If you dont understand how to use it (somehow..)
-Then dm me on discord E13_ 
+Then join the discord bellow and open a support ticket
 
 https://discord.gg/E13
 
